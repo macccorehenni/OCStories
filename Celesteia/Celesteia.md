@@ -12,4 +12,4 @@ Celesteia, perhaps not believing that she was actually _out_ of the night terror
 "How do you know my name?" she said, after deliberating with herself if she should interact with this foreboding figure. Aside from its crown, colored bright golden–yellow with specks of grey, it was only made of _shadow_, its body mimicking that of the faerie's clothes.
 "I am the god of this realm." It moves out of the way to reveal an window, a bright rainbow terminating right beneath the window where Celesteia and this figure stood.
 As if reading her mind, the figure answered her question of _who_ exactly it was.
-"I," the figure declared, somewhat solemnly, "am the god of the dark side of moon. I've been waiting for Lisanna to decide it was time to bring you. You're special, Celesteia, not one to 
+"I," the figure declared, somewhat solemnly, "am the god of the dark side of moon. I've been waiting for Lisanna to decide it was time to bring you. You're special, Celesteia, not one to destroy your life."
