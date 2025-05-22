@@ -5,6 +5,9 @@
 		}
 	],
 	"settings": {
-		"gitdoc.enabled": true
+		"gitdoc.enabled": true,
+		"editor.minimap.autohide": true,
+		"editor.minimap.enabled": true,
+		"workbench.colorTheme": "papercolor-vscode-dark"
 	}
 }
