@@ -14,4 +14,5 @@ Celesteia, perhaps not believing that she was actually _out_ of the night terror
 As if reading her mind, the figure answered her question of _who_ exactly it was.
 "I," the figure declared, somewhat solemnly, "am the god of the dark side of moon. I've been waiting for Lisanna to decide it was time to bring you. You're special, Celesteia, not one to destroy your life."
 Celesteia only nodded. "I'm not okay, Celesteia."
-She nodded once again, then said
+She nodded once again, then said, "Sure. I know that feeling, Mr.— what should I call you, exactly?"
+"Leader." He nods, then looks back out towards the rainbow. "Celesteia? You know about the idea of the rainbow bridge, no?"
