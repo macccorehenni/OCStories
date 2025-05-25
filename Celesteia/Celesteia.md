@@ -40,4 +40,8 @@ She nodded once again, then said, "Sure. I know that feeling, Mr.— what should
 
 Leader nods. "I don't know what she would do, since Light and I kinda keep her in check. Light, anyways."
 
-"So, why? Why do you not follow him?" Celesteia walks towards the window, observing all the poor souls who ended up on the dark side of the moon, and felt a 
+"So, why? Why do you not follow him?" Celesteia walks towards the window, observing all the poor souls who ended up on the dark side of the moon, and felt a almost _pity_  for the god.
+
+"Okay, I'll help, Leader." she said, after a moment of reflection. She felt so similar to him— after all, he had no family either, just like her. He felt alone, just as she did.
+"What will happen if you don't continue to live, Leader?" she said after another minute. "Would… Earth die?"
+"Yes, unfortunately.
