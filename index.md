@@ -1,2 +1,3 @@
 # Files
-[[Celesteia]]
+
+[Celesteia and the Rainbow Bridge](Celesteia/Celesteia.md)
