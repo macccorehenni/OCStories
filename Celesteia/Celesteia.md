@@ -16,3 +16,7 @@ As if reading her mind, the figure answered her question of _who_ exactly it was
 Celesteia only nodded. "I'm not okay, Celesteia."
 She nodded once again, then said, "Sure. I know that feeling, Mr.— what should I call you, exactly?"
 "Leader." He nods, then looks back out towards the rainbow. "Celesteia? You know about the idea of the rainbow bridge, no?"
+"Yes, I do." She looked thoughtfully out the window in front of her, then frowned. "Is this it?"
+"Yes, looks a little crowded, eh?" The Leader smiled, the gesture quickly turned sour by a thought. "But I'm having trouble managing it. I need help."
+"Huh, do you have siblings? I don't—"
+"They all disowned me, not the least the 
