@@ -36,4 +36,8 @@ She nodded once again, then said, "Sure. I know that feeling, Mr.— what should
 
 "I have no ability to do stuff on Earth— Terra would kill me if she found out."
 
-"Terra being your sister who watches over Earth. Us denizens of
+"Terra being your sister who watches over Earth. Us denizens of Earth know her well."
+
+Leader nods. "I don't know what she would do, since Light and I kinda keep her in check. Light, anyways."
+
+"So, why? Why do you not follow him?" Celesteia walks towards the window, observing all the poor souls who ended up on the dark side of the moon, and felt a 
