@@ -27,6 +27,7 @@ She nodded once again, then said, "Sure. I know that feeling, Mr.— what should
 "Yes, I do." She looked thoughtfully out the window in front of her, then frowned. "Is this it?"
 
 "Yes, looks a little crowded, eh?" The Leader smiled, the gesture quickly turned sour by a thought. "But I'm having trouble managing it. I need help."
+
 "Huh, do you have siblings? I don't—"
 
 "They all disowned me, not the least the Light Side of the Moon. He thought I was crazy for _wanting_ to take on death. I feel maligned, hence your job— protect those who are not ready to cross the bridge from doing so. I need your help gaining my siblings' trust back."
@@ -35,4 +36,4 @@ She nodded once again, then said, "Sure. I know that feeling, Mr.— what should
 
 "I have no ability to do stuff on Earth— Terra would kill me if she found out."
 
-"Terra being your sister who watches over 
+"Terra being your sister who watches over Earth. Us denizens of
