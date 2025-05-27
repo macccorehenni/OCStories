@@ -44,4 +44,4 @@ Leader nods. "I don't know what she would do, since Light and I kinda keep her i
 
 "Okay, I'll help, Leader." she said, after a moment of reflection. She felt so similar to him— after all, he had no family either, just like her. He felt alone, just as she did.
 "What will happen if you don't continue to live, Leader?" she said after another minute. "Would… Earth die?"
-"Yes, unfortunately.
+"Yes, unfortunately. After all, we, meaning mostly Light, 
