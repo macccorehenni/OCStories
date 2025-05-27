@@ -1,0 +1,15 @@
+{
+	"folders": [
+		{
+			"path": "."
+		}
+	],
+	"settings": {
+		"gitdoc.enabled": true,
+		"editor.minimap.autohide": true,
+		"editor.minimap.enabled": true,
+		"workbench.colorTheme": "papercolor-vscode-dark",
+		"autoHide.autoHideAuxiliaryBar": false,
+		"autoHide.autoHidePanel": false
+	}
+}
