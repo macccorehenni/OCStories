@@ -63,7 +63,7 @@ Understandably, she was confused, and as if she had said it out loud, the Leader
 "Not… exactly," he said, carefully weighing his words. "You’re helping them see what they can’t in their darkest moments—that their lives hold value beyond the pain they feel. You’re not deciding for them; you’re giving them a chance to step back, to breathe, to remember that they are more than their suffering. The choice will still be theirs."
 Celesteia swallowed hard. She had spent years trapped in night terrors, fighting against shadows she couldn’t control. But maybe, just maybe, she could stop others from getting lost in their own.
 
-Despite this revelation, Celesteia still had one question "How will I know when I'm required?"
+Despite this revelation, Celesteia still had one question. "How will I know when I'm required?"
 
 "Trust me, you'll know, Celesteia. Lisanna here will tell you when you need to pay attention to those around you—"
 
@@ -88,6 +88,7 @@ Suddenly, though, Lisanna, sulking despite the Leader's words of encouragement, 
 Back in bed, released from the strings of her terror, she reflected on the experience of what had just happened. As she drifted off to sleep, her eyes slowly but surely failing her, she felt a warmth, one not felt since that fateful night twelve years ago, one indicating that everything would be _okay_. After all, the years that had passed had done so in a blur. So, what could she say, but now she had a purpose? She felt at home, safe, for the first time in the decade since her father's death. She was ready to take her first charge as _the Rainbow Guard._
 
 ## Chapter 1— The Fateful Meeting
+
 Celesteia woke, feeling refreshed, but then she noted a pile of tissues that she had _not_ put on her dresser the night before, which she found suspicious. But then she realized— could it have been the faerie that she had met the night before?
 
 "Lisanna? That you?" As she moved closer, she saw the faerie wrapped up in the tissues, sleeping soundly, if a bit coldly. As she moved to cover Lisanna's wings, she saw Lisanna's eyes open, groggily. "Whatzzat? Is it time for lunch already?"
@@ -96,9 +97,15 @@ Celesteia woke, feeling refreshed, but then she noted a pile of tissues that she
 
 The faerie shook herself awake, still confused as to where she had landed. Then she remembered where she was— she was on Earth, finally! But she then also remembered that the teen in front of her, who was now her charge, was fussing over her. "I'm lucky that _I_ have a guide," she reminded herself, "just as much as lucky as she is to have me. Mustn't forget as much."
 
-"Your clothes!" Celesteia continued fussing over the faerie, who she realized was also supposed to help _her_. "We need to make more. Can't be too different from a full sized dress— we should go to the fabric store to restock my supplies— and tissues will _not_ work for a bed. We may thusly have to find you a basket and some fabrics you like for a bed."
+"Your clothes!" Celesteia continued fussing over the faerie, who Lisanna realized was also supposed to help _her_. "We need to make more. Can't be too different from a full sized dress— we should go to the fabric store to restock my supplies— and tissues will _not_ work for a bed. We may thusly have to find you a basket and some fabrics you like for a bed."
 Lisanna wasn't sure about what Celesteia was talking about, but two things were sure— she was hungry, and she knew something was wrong. Someone needed Celesteia's help, but _who_ exactly?
 
 Better yet, where?
 
-Her thoughts were interuppted
+Her thoughts were interrupted by Celesteia telling her, "You coming or not, Lis?"
+
+Lisanna jumped (more like floated, anyways) up and followed her human as she left her house. They ended up at a city bus stop, covered in graffiti and distended. "Wait here for a minute, Lis. I need to go talk with the bus shop and get something to eat."
+
+The faerie couldn't help but note that her charge's house was— _empty_. She lived alone, which certainly would be true if she was an orphan. But her mother was not mentioned at all— perhaps she had not died, but why didn't Celesteia mention herm when she was talking to Leader in the control room?
+
+Something was off with her mother, but she dared not ask. She didn't need to, anyways, as Celesteia, clutching a piece of paper in her hands, vented to her. "My mother…
