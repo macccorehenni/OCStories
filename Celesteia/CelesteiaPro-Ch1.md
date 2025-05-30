@@ -75,4 +75,14 @@ The faerie balks at her boss's command.
 
 "I want to live there, sure, but without obligations!" The faerie harrumphed, now floating near her boss's shoulders, wings flitting in displeasure.
 
-"Now—" Leader, normally able to conjure words from discomfort, found his ability lacking. After a moment, he sighed, then continued speak"Hmm, you're right, but Celesteia does need help. She's a floating rock, just like Terra, Mar and everyone else, perhaps you could help
+"Now—" Leader, normally able to conjure words from discomfort, found his ability lacking. After a moment, he sighed, then continued speak"Hmm, you're right, but Celesteia does need help. She's a floating rock, just like Terra, Mar and everyone else. Please, Lis, just do it. For Celesteia, the Earth people, and most importantly, me."
+
+She seemed to consider this, then sighed, very much deeply. "Fine, if it means I get to live on Earth."
+
+Leader continued, in thought, "After all, thinking to all the celestials' fae, you're one of the best. Terra's? He's stuck under his boss' wings, in a manner of speaking. Light's? No, no, he's too vain, could never do this. You, Lis, are adventurous, spunky—" Lisanna smiled at this— "much more powerful then any of your cousins this side of the asteroid belt. You are more than capable of doing this. You just have to _try_."
+
+She bowed her head, speaking no words. Both Celesteia and Leader smiled, knowing that the god of the Dark Side of the Moon will soon regain his prominence among his siblings, and all would be well.
+
+Suddenly, though, Lisanna, sulking despite the Leader's words of encouragement, pulled out her wand and sent Celesteia back to Earth. She very much was _not_ ready to live on Earth with a job, but she must. After all it was her dream.
+
+Back in bed, released from the strings of her terror, she reflected on the experience of what had just happened. As she drifted off to sleep, her eyes slowly but surely failing her, she felt a warmth, one not felt since that fateful night twelve years ago, one indicating that everything would be _okay_. After all, the years that had passed had done so in a blur. So, what could she say, but now she had a purpose? She felt at home, safe, for the first time in the decade since her father's death. She was ready to take her first charge as— _the Rainbow Guard._ 
