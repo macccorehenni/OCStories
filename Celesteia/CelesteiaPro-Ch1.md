@@ -85,4 +85,14 @@ She bowed her head, speaking no words. Both Celesteia and Leader smiled, knowing
 
 Suddenly, though, Lisanna, sulking despite the Leader's words of encouragement, pulled out her wand and sent Celesteia back to Earth. She very much was _not_ ready to live on Earth with a job, but she must. After all it was her dream.
 
-Back in bed, released from the strings of her terror, she reflected on the experience of what had just happened. As she drifted off to sleep, her eyes slowly but surely failing her, she felt a warmth, one not felt since that fateful night twelve years ago, one indicating that everything would be _okay_. After all, the years that had passed had done so in a blur. So, what could she say, but now she had a purpose? She felt at home, safe, for the first time in the decade since her father's death. She was ready to take her first charge as— _the Rainbow Guard._ 
+Back in bed, released from the strings of her terror, she reflected on the experience of what had just happened. As she drifted off to sleep, her eyes slowly but surely failing her, she felt a warmth, one not felt since that fateful night twelve years ago, one indicating that everything would be _okay_. After all, the years that had passed had done so in a blur. So, what could she say, but now she had a purpose? She felt at home, safe, for the first time in the decade since her father's death. She was ready to take her first charge as— _the Rainbow Guard._
+
+## Chapter 1— The Fateful Meeting
+
+Lisanna woke, feeling refreshed, but then she noted a pile of tissues that she had _not_ put on her dresser the night before, which she found suspicious. But then she realized— could it have been the faerie that she had met the night before?
+
+"Lisanna? That you?" As she moved closer, she saw the faerie wrapped up in the tissues, sleeping soundly, if a bit coldly. As she moved to cover Lisanna's wings, she saw Lisanna's eyes open, groggily. "Whatzzat? Is it time for lunch already?"
+
+"Lisanna!" Celesteia scolded.
+
+
