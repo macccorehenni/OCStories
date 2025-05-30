@@ -85,14 +85,20 @@ She bowed her head, speaking no words. Both Celesteia and Leader smiled, knowing
 
 Suddenly, though, Lisanna, sulking despite the Leader's words of encouragement, pulled out her wand and sent Celesteia back to Earth. She very much was _not_ ready to live on Earth with a job, but she must. After all it was her dream.
 
-Back in bed, released from the strings of her terror, she reflected on the experience of what had just happened. As she drifted off to sleep, her eyes slowly but surely failing her, she felt a warmth, one not felt since that fateful night twelve years ago, one indicating that everything would be _okay_. After all, the years that had passed had done so in a blur. So, what could she say, but now she had a purpose? She felt at home, safe, for the first time in the decade since her father's death. She was ready to take her first charge as— _the Rainbow Guard._
+Back in bed, released from the strings of her terror, she reflected on the experience of what had just happened. As she drifted off to sleep, her eyes slowly but surely failing her, she felt a warmth, one not felt since that fateful night twelve years ago, one indicating that everything would be _okay_. After all, the years that had passed had done so in a blur. So, what could she say, but now she had a purpose? She felt at home, safe, for the first time in the decade since her father's death. She was ready to take her first charge as _the Rainbow Guard._
 
 ## Chapter 1— The Fateful Meeting
-
-Lisanna woke, feeling refreshed, but then she noted a pile of tissues that she had _not_ put on her dresser the night before, which she found suspicious. But then she realized— could it have been the faerie that she had met the night before?
+Celesteia woke, feeling refreshed, but then she noted a pile of tissues that she had _not_ put on her dresser the night before, which she found suspicious. But then she realized— could it have been the faerie that she had met the night before?
 
 "Lisanna? That you?" As she moved closer, she saw the faerie wrapped up in the tissues, sleeping soundly, if a bit coldly. As she moved to cover Lisanna's wings, she saw Lisanna's eyes open, groggily. "Whatzzat? Is it time for lunch already?"
 
 "Lisanna!" Celesteia scolded.
 
+The faerie shook herself awake, still confused as to where she had landed. Then she remembered where she was— she was on Earth, finally! But she then also remembered that the teen in front of her, who was now her charge, was fussing over her. "I'm lucky that _I_ have a guide," she reminded herself, "just as much as lucky as she is to have me. Mustn't forget as much."
 
+"Your clothes!" Celesteia continued fussing over the faerie, who she realized was also supposed to help _her_. "We need to make more. Can't be too different from a full sized dress— we should go to the fabric store to restock my supplies— and tissues will _not_ work for a bed. We may thusly have to find you a basket and some fabrics you like for a bed."
+Lisanna wasn't sure about what Celesteia was talking about, but two things were sure— she was hungry, and she knew something was wrong. Someone needed Celesteia's help, but _who_ exactly?
+
+Better yet, where?
+
+Her thoughts were interuppted
