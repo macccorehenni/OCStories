@@ -111,3 +111,14 @@ The faerie couldn't help but note that her charge's house was— _empty_. She li
 Something was off with her mother, but she dared not ask. She didn't need to, anyways, as Celesteia, clutching a piece of paper in her hands, vented to her. "My mother…"
 
 Celesteia continued, and Lisanna listened to her friend— was it fair that her mother blamed _her_ coming into the world for her father's death _three years later?_ No, reasoned the faerie, it was not. But as they approached the school, bringing much consternation to an end, Lisanna did not feel the same way.
+"Celeseteia, why are you still here?"
+
+Gingerly, Celesteia shook Lisanna awake. She was still wearing the same dress that she had on the night before. "Lisanna, you are sleeping with _no_ blankets! That's not the proper way for a faerie to sleep on Earth; you'll catch a cold!"
+
+Fully awake now, the faerie, finding herself in a human's grasp, though gently, struggled against Celesteia. 
+
+"Imma make you a bed when I get back, then we need to make you more clothes."
+
+"Wat, clothes?" Lisanna, as any teenager, Celesteia included, loved dressing up for occasions beyond her control.  "What kind?"
+
+"Well, we may have to go to the fabric **store**
