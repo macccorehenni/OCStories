@@ -96,9 +96,7 @@ Celesteia woke, feeling refreshed, but then she noted a pile of tissues that she
 "Lisanna!" Celesteia scolded.
 
 The faerie shook herself awake, still confused as to where she had landed. Then she remembered where she was— she was on Earth, finally! But she then also remembered that the teen in front of her, who was now __her charge__, was fussing over her. "I'm lucky that _I_ have a guide," she reminded herself, "just as much as lucky as she is to have me. Mustn't forget as much."
-The faerie shook herself awake, still confused as to where she had landed. Then she remembered where she was— she was on Earth, finally! But she then also remembered that the teen in front of her, who was now __her charge__, was fussing over her. "I'm lucky that _I_ have a guide," she reminded herself, "just as much as lucky as she is to have me. Mustn't forget as much."
 
-"Your clothes!" Celesteia continued fussing over the faerie, who Lisanna realized was also supposed to help _her_ realize her dreams. "We need to make more. Can't be too different from a full sized dress— we should go to the fabric store to restock my supplies— and tissues will _not_ work for a bed. We may thusly have to find you a basket and some fabrics you like for a bed."
 "Your clothes!" Celesteia continued fussing over the faerie, who Lisanna realized was also supposed to help _her_ realize her dreams. "We need to make more. Can't be too different from a full sized dress— we should go to the fabric store to restock my supplies— and tissues will _not_ work for a bed. We may thusly have to find you a basket and some fabrics you like for a bed."
 Lisanna wasn't sure about what Celesteia was talking about, but two things were sure— she was hungry, and she knew something was wrong. Someone needed Celesteia's help, but _who_ exactly?
 
@@ -109,19 +107,7 @@ Her thoughts were interrupted by Celesteia telling her, "You coming or not, Lis?
 Lisanna jumped (more like floated, anyways) up and followed her human as she left her house. They ended up at a city bus stop, covered in graffiti and distended. "Wait here for a minute, Lis. I need to go talk with the bus shop and get something to eat."
 
 The faerie couldn't help but note that her charge's house was— _empty_. She lived alone, which certainly would be true if she was an orphan. But her mother was not mentioned at all— perhaps she had not died, but why didn't Celesteia mention her mother when she was talking to Leader in the control room?
-The faerie couldn't help but note that her charge's house was— _empty_. She lived alone, which certainly would be true if she was an orphan. But her mother was not mentioned at all— perhaps she had not died, but why didn't Celesteia mention her mother when she was talking to Leader in the control room?
 
 Something was off with her mother, but she dared not ask. She didn't need to, anyways, as Celesteia, clutching a piece of paper in her hands, vented to her. "My mother…"
 
 Celesteia continued, and Lisanna listened to her friend— was it fair that her mother blamed _her_ coming into the world for her father's death _three years later?_ No, reasoned the faerie, it was not. But as they approached the school, bringing much consternation to an end, Lisanna did not feel the same way.
-"Celeseteia, why are you still here?"
-
-Gingerly, Celesteia shook Lisanna awake. She was still wearing the same dress that she had on the night before. "Lisanna, you are sleeping with _no_ blankets! That's not the proper way for a faerie to sleep on Earth; you'll catch a cold!"
-
-Fully awake now, the faerie, finding herself in a human's grasp, though gently, struggled against Celesteia. 
-
-"Imma make you a bed when I get back, then we need to make you more clothes."
-
-"Wat, clothes?" Lisanna, as any teenager, Celesteia included, loved dressing up for occasions beyond her control.  "What kind?"
-
-"Well, we may have to go to the fabric **store**
