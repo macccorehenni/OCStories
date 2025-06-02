@@ -110,10 +110,14 @@ The faerie couldn't help but note that her charge's house was— _empty_. She li
 
 Something was off with her mother, but she dared not ask. She didn't need to, anyways, as Celesteia, clutching a piece of paper in her hands, vented to her. "My mother…"
 
-Celesteia continued, and Lisanna listened to her friend— was it fair that her mother blamed _her_ coming into the world for her father's death _three years later?_ No, reasoned the faerie, it was not. But as they approached the school, bringing much consternation to an end, Lisanna did not feel the same way. She had a feeling that something was wrong. _Something_ was happening, but she couldn't put her finger on it. As they arrived at the school, however, a cop approached them and let them know that the school was on lockdown. 
+Celesteia continued, and Lisanna listened to her friend— was it fair that her mother blamed _her_ coming into the world for her father's death _three years later?_ No, reasoned the faerie, it was not. But as they approached the school, bringing much consternation to an end, Lisanna did not feel the same way. She had a feeling that something was wrong. _Something_ was happening, but she couldn't put her finger on it. As they arrived at the school, however, a cop approached them and let them know that the school was on lockdown.
 
-"Why, if I may?" Celesteia queried. 
+"Why, if I may?" Celesteia queried.
 
 "Someone's on the roof, we think they might jump." Celesteia's highschool was right on a major thoroughfare in her college town of Eisnore. If the person jumped, they would certainly die. Which reminded her… wasn't her "job"  to prevent deaths like these?
 
-She feinted, sending Lisanna into a tailspin. "What on the Gods of the Planets are you doing, Celeste?" the faerie sputtered as she and her human charge made for a window that Celesteia 
+She feinted, sending Lisanna into a tailspin. "What on the Gods of the Planets are you doing, Celeste?" the faerie sputtered as she and her human charge made for a window that Celesteia knew had roof access. She jumped through, much to Lisanna's consternation, and made her way to the hatch to the roof thirty feet away. Lisanna panted along, and eventually they both ended up on the roof. 
+
+"Stop! Don't jump!" Celesteia shouted.
+
+"And why should I?" A young woman, with her brunette hair down, stood poised over the edge 
