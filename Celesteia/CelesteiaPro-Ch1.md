@@ -174,6 +174,10 @@ On return, Celesteia found not only the officers but the dean of students of the
 
 "Officer, can you see my faerie?"
 
-"No— are you okay, Celesteia?" The officer looked at Celesteia weirdly. 
+"No— are you okay, Celesteia?" The officer looked at Celesteia weirdly.
 
 "Never mind," she said, casting an interested look at Lisanna, who returned a sheepish shrug, "but you _must_ have some punishment for me?"
+
+"No, just kind words. And—" Officer Candell leaned in conspiratorially— "how the _hell_ did you do that so _quickly_?"
+
+"Let's just say I have someone on my side." Celesteia said, attempting to 
