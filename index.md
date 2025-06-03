@@ -1,3 +1,3 @@
 # Files
 
-[Celesteia and the Rainbow Bridge](Celesteia/CelesteiaPro-Ch1.md)
+[Celesteia and the Rainbow Bridge](Celesteia/index.md)
