@@ -180,4 +180,6 @@ On return, Celesteia found not only the officers but the dean of students of the
 
 "No, just kind words. And—" Officer Candell leaned in conspiratorially— "how the _hell_ did you do that so _quickly_?"
 
-"Let's just say I have someone on my side." Celesteia said, attempting to 
+"Let's just say I have someone on my side." Celesteia said, attempting to imbue a power of authority of some sort, but a glance at Lisanna indicated that the effort to do such had failed.
+
+"Okay, if you aren't gonna spill your skills. But we need to take you to the department to hear your 
