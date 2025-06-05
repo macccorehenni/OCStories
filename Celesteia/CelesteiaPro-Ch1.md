@@ -184,4 +184,6 @@ On return, Celesteia found not only the officers but the dean of students of the
 
 "Okay, if you aren't gonna spill your skills. But we need to take you to the department to hear your side."
 
-Lisanna smiled, perhaps a bit too widely for Celesteia's 
+Lisanna smiled, perhaps a bit too widely for Celesteia's tastes. She hadn't known Lisanna for long, but the faerie wasn't _too_ hard to read, after all. She was hiding some details about the officer that might be helpful to know. 
+
+"Lisanna, come clean to me. 
