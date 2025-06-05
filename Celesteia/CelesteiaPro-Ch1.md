@@ -184,6 +184,47 @@ On return, Celesteia found not only the officers but the dean of students of the
 
 "Okay, if you aren't gonna spill your skills. But we need to take you to the department to hear your side."
 
-Lisanna smiled, perhaps a bit too widely for Celesteia's tastes. She hadn't known Lisanna for long, but the faerie wasn't _too_ hard to read, after all. She was hiding some details about the officer that might be helpful to know. 
+Lisanna smiled, perhaps a bit too widely for Celesteia's tastes. She hadn't known Lisanna for long, but the faerie wasn't _too_ hard to read, after all. She was hiding some details about the officer that might be helpful to know.
 
-"Lisanna, come clean to me. 
+"Lisanna, come clean to me. You know something about the officer you're not telling me." Celesteia wasn't angry, but she was quite concerned.
+
+"Shh, I'll let the officer explain in a bit." Celesteia didn't quite like the answer, but she complied.
+
+After a few minutes, Candell led Lisanna and Celesteia to his patrol car. He let them in, told Celesteia to close the door, and then turned to them, and addressed, much to Celesteia's surprise, not her, but the faerie.
+
+"Lisanna! I thought you were back on the moon!"
+
+Celesteia was shocked. "Officer? I thought that… you could _not_ see Lisanna? And—" she turned to Lisanna, shocked— "how _the fuck_ do you know him?"
+
+Candell turned to Celesteia, smile fading. "Lisanna… helped me through my own struggles. You know, Leader once gave Lisanna your job you hold now— right, Lisanna?"
+
+The faerie smiled in confirmation, and Officer Candell continued. "Yeah, I wasn't always as happy-go-lucky as I seem now. My wife left me, what now, a decade ago, Lis?"
+
+She nodded once again, and the officer looked down, eyes teared up, but not crying, not yet. "Much like you, or Anna, or… in certain ways, you, Lisanna, I struggled with that loss. While she's still alive and I still _technically_ could see her around, I… I wouldn't be able to interact. She could just as well be dead to me. I took that personally, I cried. But, Lis, Leader, they helped me out."
+
+Lisanna chimed in. "I had no experience, Modon— the officer in charge here— was, like, my second charge?
+"It was one of my first times on Earth. I had already loved Earth at that point, but I had to keep going back to the Moon. Leader wouldn't let me stay there. Until the other night, when Celeste and I crossed paths."
+
+Candell smiled. His radio chirped, bringing him back for now to the present. "Okay, well, shall we go?"
+
+Both girls smiled. The faerie— seated on Celesteia's shoulder— said, "Let's go, Mod— Officer Candell!"
+
+---
+
+After about fifteen minutes, the trio arrived at the police station. Before showing them in, the officer cautioned, "This is going to be very serious, Celesteia. You will need to leave Lis out of this, 'kay?"
+Celesteia, her long hair tied up in a bun now, remnants of the rescue attempt, smiled. "I'm glad I'm not the only one here who's been across the Bridge and lived to tell the tale."
+
+---
+
+``` text
+OFFICER TRANSCRIPT — OFFICER M CANDELL
+SUBJECT: CELESTEIA ANORE 
+CASE: ATTEMPTED SUICIDE OF ANNA LENORE
+INTERVIEW START
+Candell: Okay, so let's start. Where were you when Anna climbed up onto the roof and began her attempt to kill herself?
+Celesteia: I was on the city bus, maybe about a mile or so away— [Subject looks over shoulder at door] how long before 8:30 was it?
+Candell: 8:15.
+Celesteia: Yeah, so a mile. I arrived at 8:30 and heard the resource officer—
+Candell: Officer Paris, of the Riverfront Police Department.
+Celesteia: Uh-huh. Say that someone was on the roof, intending suicide. Some— some voice in my head [Looks over shoulder again]— told me that this might happen today.
+```
