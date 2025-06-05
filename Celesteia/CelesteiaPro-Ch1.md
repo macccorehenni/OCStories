@@ -221,10 +221,13 @@ OFFICER TRANSCRIPT — OFFICER M CANDELL
 SUBJECT: CELESTEIA ANORE 
 CASE: ATTEMPTED SUICIDE OF ANNA LENORE
 INTERVIEW START
-Candell: Okay, so let's start. Where were you when Anna climbed up onto the roof and began her attempt to kill herself?
-Celesteia: I was on the city bus, maybe about a mile or so away— [Subject looks over shoulder at door] how long before 8:30 was it?
+Candell: Okay, so let's start. 
+Where were you when Anna climbed up onto the roof and began her attempt to kill herself?
+Celesteia: I was on the city bus, maybe about a mile or so away— 
+[Subject looks over shoulder at door] how long before 8:30 was it?
 Candell: 8:15.
 Celesteia: Yeah, so a mile. I arrived at 8:30 and heard the resource officer—
 Candell: Officer Paris, of the Riverfront Police Department.
-Celesteia: Uh-huh. Say that someone was on the roof, intending suicide. Some— some voice in my head [Looks over shoulder again]— told me that this might happen today.
+Celesteia: Uh-huh. Say that someone was on the roof, intending suicide. 
+Some— some voice in my head [Looks over shoulder again]— told me that this might happen today.
 ```
