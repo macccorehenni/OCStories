@@ -183,3 +183,5 @@ On return, Celesteia found not only the officers but the dean of students of the
 "Let's just say I have someone on my side." Celesteia said, attempting to imbue a power of authority of some sort, but a glance at Lisanna indicated that the effort to do such had failed.
 
 "Okay, if you aren't gonna spill your skills. But we need to take you to the department to hear your side."
+
+Lisanna smiled, perhaps a bit too widely for Celesteia's 
