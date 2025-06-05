@@ -110,4 +110,76 @@ The faerie couldn't help but note that her charge's house was— _empty_. She li
 
 Something was off with her mother, but she dared not ask. She didn't need to, anyways, as Celesteia, clutching a piece of paper in her hands, vented to her. "My mother…"
 
-Celesteia continued, and Lisanna listened to her friend— was it fair that her mother blamed _her_ coming into the world for her father's death _three years later?_ No, reasoned the faerie, it was not. But as they approached the school, bringing much consternation to an end, Lisanna did not feel the same way.
+Celesteia continued, and Lisanna listened to her friend— was it fair that her mother blamed _her_ coming into the world for her father's death _three years later?_ No, reasoned the faerie, it was not. But as they approached the school, bringing much consternation to an end, Lisanna did not feel the same way. She had a feeling that something was wrong. _Something_ was happening, but she couldn't put her finger on it. As they arrived at the school, however, a cop approached them and let them know that the school was on lockdown.
+
+"Why, if I may?" Celesteia queried.
+
+"Someone's on the roof, we think they might jump." Celesteia's highschool was right on a major thoroughfare in her college town of Eisnore. If the person jumped, they would certainly die. Which reminded her… wasn't her "job"  to prevent deaths like these?
+
+She feinted, sending Lisanna into a tailspin. "What on the Gods of the Planets are you doing, Celeste?" the faerie sputtered as she and her human charge made for a window that Celesteia knew had roof access. She jumped through, much to Lisanna's consternation, and made her way to the hatch to the roof thirty feet away. Lisanna panted along, and eventually they both ended up on the roof.
+
+"Stop! Don't jump!" Celesteia shouted.
+
+"And why shouldn't I?" A young woman, with her brunette hair down, stood poised over the edge. Thinking quickly, Celesteia said, "Because… you matter. I don't want to see you die like this. What's your name?"
+
+The woman grimaced, then took one step closer to the edge. "Why does it matter to you? I'll be dead, damn it, if you'd let me." She started grimacing, then smiled. "I get it. You want to tease me just like the others, don't you?"  
+
+Celesteia persisted, asking again for her name. "Anna," the young woman said, then took another step. "Why does it matter?"
+
+"I feel you, Anna. It's hard losing someone."
+
+Anna, who was in the process of taking one of her last steps, stopped and turned back to look at Celesteia. "How… did _you_ know?" Anna frowned, and looked away from Celesteia, obvious pain written on her face. "There's people who care about you down there. The police—"
+"They did nothing for my father, they let him _die_."
+
+"Anna, the officers— while I don't know them personally— they felt the same exact way you do now, and I know that for sure. Anna, they are _scared_ for you down there. If not for anyone else, friend, you should not do this for _them_.  felt like you do now when my father died.
+
+"It was 12 years ago to the day when my father died. He had been out drinking with who I guess was the wrong guys. They decided to call it quits for the night, but my Father chose to drive home. His choice cost him his life, but I'm still standing. Now, I neither expect nor want you to explain your pain. Hell, Anna, I doubt you can. What I do want you to do is reconsider. I'm going to go now—"
+
+Anna put her hand on Celesteia's shoulder, stopping her from going. Celesteia turned to her, seeing tears in her eyes.
+
+"He passed after a long bout with cancer. Soon after, about a month ago I guess—" she stopped to wipe tears out of her eyes with her blue, long sleeved sweater that somehow _shined_ despite her morose state, then continued, "My mother— my _rock_— died in a car accident. I miss them both— what's your name?"
+
+"Celesteia."
+
+"Celesteia. I miss them both. I can't go to an orphanage! I don't want to live with the stigma of _having no parents_. That kind of thing has already seen me teased in the halls below us, I can't take it anymore! Why, why do I have to be the one who lives here?"
+
+"You matter, Anna. I've learned that it's not easy in life, and if we're being honest, my flats always seem to get me teased."
+
+She was indeed wearing almost ballet–like flats, not quite pointe shoes, but close enough. Celesteia was a dancer, had picked up the hobby to dispense with the grief from losing her father, and to cope with the icy distance her mother seemed to have with her. She was only six when she picked up dancing, but she _somehow_  managed to be good at it. "Unlike helping my father," she thought, bitterly.
+
+"My point is, we've all been there. Death, well it's a normal part of life. Even the best of relationships must end sooner rather than later. I've never met him, but the god of death— even he feels this— _pain_."
+She looked up to find Anna missing. "Well… Celesteia, let's go talk to the police, shall we?"
+
+Celesteia smiled.
+
+"No wonder why Leader chose you, girl." Lisanna smiled. "Proud of you." Celesteia looked at the faerie, at the same time amused by her disheveled look from flying to keep up with her charge, and her look of pride at Celesteia's success.
+
+"Shall we?" Lisanna was hovering over the access hatch, where she could hear a strange song below— was that Anna?
+
+Celesteia nodded, her smile broadening. "Let's."
+
+---
+
+On return, Celesteia found not only the officers but the dean of students of the school as well.
+
+"Shit." she intoned under her breath.
+
+"I take it that you are in trouble, Celeste." Lisanna remarked as she sat on Celesteia's shoulder.
+
+"Seems so."
+
+"Celesteia! You did well, even better than what Officer Candell would have done here."
+
+"Maybe not!" The faerie smiled at her charge, and the cop too.
+
+"Officer, can you see my faerie?"
+
+"No— are you okay, Celesteia?" The officer looked at Celesteia weirdly.
+
+"Never mind," she said, casting an interested look at Lisanna, who returned a sheepish shrug, "but you _must_ have some punishment for me?"
+
+"No, just kind words. And—" Officer Candell leaned in conspiratorially— "how the _hell_ did you do that so _quickly_?"
+
+"Let's just say I have someone on my side." Celesteia said, attempting to imbue a power of authority of some sort, but a glance at Lisanna indicated that the effort to do such had failed.
+
+"Okay, if you aren't gonna spill your skills. But we need to take you to the department to hear your 
