@@ -215,6 +215,7 @@ After about fifteen minutes, the trio arrived at the police station. Before show
 Celesteia, her long hair tied up in a bun now, remnants of the rescue attempt, smiled. "I'm glad I'm not the only one here who's been across the Bridge and lived to tell the tale."
 
 ---
+_What follows is an transcript of Celesteia and Officer Candell's interview for the attempted suicide case._
 
 ``` text
 OFFICER TRANSCRIPT — OFFICER M CANDELL
@@ -238,4 +239,34 @@ Candell: Officer Paris, of the Riverfront Police Department.
 Celesteia: Uh-huh. Say that someone was on the roof, intending suicide. 
 
 Some— some voice in my head [Looks over shoulder again]— told me that this might happen today.
+
+Candell: What is the voice?
+
+Celesteia: I don't— know, something or other?
+
+Candell: so, the big question er', Celesteia, did you intend to help her, or what was your intent?
+
+Celesteia: No, no, I just went out of the kindness of my heart.
+
+Candell: And how'd you get up there?
+
+Celesteia looks over her shoulder.
+
+Celesteia: Best not to tell.
+
+Candell: Any piece of information can help us, ya know?
 ```
+
+A few minutes later, Candell, Celesteia and Lisanna were in the officers' hall talking more about their paths. "So, hey, Modon, are we free to go? Have to go make my report with the Leader."
+
+Candell said, disappointed that he couldn't chat with his newfound— friends?, "Yeah, I guess." He then turned to Celesteia with a stern face. "You two ask for me _by name_ if you ever get in trouble with your work. Gotcha?"
+
+Celesteia nodded, and turned.
+
+"Lyria, can you take my kit and take them back to the high school?" Candell asked of a lanky officer.
+
+"Sure thing, Cap!"
+
+---
+
+After the one class she had to do after the incident (yay, me!), she went out into the hall. Suddenly she heard a voice from the bathroom.
