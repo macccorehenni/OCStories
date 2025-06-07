@@ -269,4 +269,4 @@ Celesteia nodded, and turned.
 
 ---
 
-After the one class she had to do after the incident (yay, me!), she went out into the hall. Suddenly she heard a voice from the bathroom.
+After the one class she had to do after the incident (yay, me!), she went out into the hall. Suddenly she heard a voice from the bathroom. "Celeste?"
