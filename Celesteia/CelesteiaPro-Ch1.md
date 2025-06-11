@@ -270,3 +270,9 @@ Celesteia nodded, and turned.
 ---
 
 After the one class she had to do after the incident (yay, me!), she went out into the hall. Suddenly she heard a voice from the bathroom. "Celeste?"
+
+"Anna?" Celesteia was surprised to see her— friend?— in the bathroom, _calling_ her name?
+
+"Shh, join me." Anna seemed suspiciously keen on talking to Celesteia— _alone_.
+
+"I have somewhere only you, Lis, and _maybe_ Candell can visit. My treehouse. 
