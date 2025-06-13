@@ -275,4 +275,4 @@ After the one class she had to do after the incident (yay, me!), she went out in
 
 "Shh, join me." Anna seemed suspiciously keen on talking to Celesteia— _alone_.
 
-"I have somewhere only you, Lis, and _maybe_ Candell can visit. My treehouse. 
+"I have somewhere only you, Lis, and _maybe_ Candell can visit. My treehouse.
