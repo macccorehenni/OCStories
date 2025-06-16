@@ -18,7 +18,11 @@ The stars—first scattered, then placed. No chaos. No uncertainty. Each one in 
 They burned, bright and unwavering. Light upon light. And yet—space remained vast. A chasm of silence.
 So We reached again. We touched again. And in the silence, the stars hummed. Their fire breathed. Their song began.
 That, too, was better.
-We know this to be true. For We are Creation itself—the ones who first grasped light, who first placed the stars, who first breathed song into silence. We are the voice that speaks. We are the hand that shapes. You hear Us now, as you always have. As you always will.
+We know this to be true. 
+
+```
+For We are Creation itself—the ones who first grasped light, who first placed the stars, who first breathed song into silence. We are the voice that speaks. We are the hand that shapes. You hear Us now, as you always have. As you always will.
+```
 
 And thus, the cosmos unfolded—each act, each touch shaping the world in ways unseen before.
 
@@ -29,4 +33,12 @@ Then came Terra. The world beneath, the cradle of creation itself. From the dept
 And from the land We wove Iriendel, guardian of green and beast, the pulse of life itself. The grasses bow to their keeper, and creatures heed their call.
 These are but the first of Our children. Their stories echo through all time. Shall We continue?
 
+And so, from the quiet glow of Luna, two arose—sons of the celestial body, bound to Terra, yet distant in their own dominions.
 
+Noctuan, first among the veiled, ruler of the underworld. He commands in silence, his decree carried in whispers, his reign met with unease by his siblings. His leadership—necessary, unchallenged, yet unwelcome.
+
+Lunara, luminous yet lost, consumed by his own grandeur. He alone, besides Zolon themself, speaks in the tongue We claim—his voice woven with regality, though whether it is earned or assumed remains uncertain.
+
+They drift as the moon itself drifts—never straying, never settling.
+
+Next is 
