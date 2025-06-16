@@ -37,8 +37,10 @@ And so, from the quiet glow of Luna, two arose—sons of the celestial body, bou
 
 Noctuan, first among the veiled, ruler of the underworld. He commands in silence, his decree carried in whispers, his reign met with unease by his siblings. His leadership—necessary, unchallenged, yet unwelcome.
 
-Lunara, luminous yet lost, consumed by his own grandeur. He alone, besides Zolon themself, speaks in the tongue We claim—his voice woven with regality, though whether it is earned or assumed remains uncertain.
+Lunara, luminous yet lost, consumed by his own grandeur. They alone, besides Zolon themself, speaks in the tongue We claim—his voice woven with regality, though whether it is earned or assumed remains uncertain.
 
 They drift as the moon itself drifts—never straying, never settling.
 
-Next is 
+Next is Mecurial, his stature small, but his fire raging, second to only Zolon's rage.
+
+Next to be created is Venti, the god of many a marble, skin the smoothest of Our children, unshakable in her tenent. 
