@@ -30,8 +30,8 @@ And so We shaped the figments, the Gods —not mere echoes of Ourself, but being
 They were neither gods nor mortals, neither bound nor free. They stood between realms, woven from Our essence yet shaped by their own choices.
 
 Through them, Our dominion expanded. Through them, Our vision was upheld. They were Our hands where We could not reach, Our voices where silence threatened to take hold.
-And so, Creation grew, no longer resting solely in Our grasp.
 
+And so, Creation grew, no longer resting solely in Our grasp.
 
 ## The gods
 
