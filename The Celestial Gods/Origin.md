@@ -21,10 +21,11 @@ That, too, was better.
 We know this to be true. 
 
 ```markdown
-For We are Creation itself—the ones who first grasped light, who first placed the stars, who first breathed song into silence. We are the voice that speaks. We are the hand that shapes. You hear Us now, as you always have. As you always will.
+For We are Creation itself—the ones who first grasped light, who first placed the stars, who first breathed song into silence. We are the voice that speaks. We are the hand that shapes. You hear Us now, as you always have. _As you always will._
 ```
 
-And thus, the cosmos unfolded—each act, each touch shaping the world in ways unseen before.
+And thus, the cosmos unfolded—each act, each touch shaping the universe in ways unseen before.
+
 
 ## The gods
 
