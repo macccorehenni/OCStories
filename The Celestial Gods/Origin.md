@@ -48,7 +48,7 @@ From the quiet glow of Luna, two arose—sons of the celestial body, bound to Te
 
 Noctuan, first among the veiled, ruler of the underworld. He commands in silence, his decree carried in whispers, his reign met with unease by his siblings. His leadership—necessary, unchallenged, yet unwelcome.
 
-Lunara, luminous yet lost, consumed by his own grandeur. They alone, besides Zolon themself, speaks in the tongue We claim—his voice woven with regality, though whether it is earned or assumed remains uncertain.
+Lunara, luminous yet lost, consumed by their grandeur. They alone, besides Zolon themself, speaks in the tongue We claim— their voice woven with regality, though whether it is earned or assumed remains uncertain.
 
 They drift as the moon itself drifts—never straying, never settling.
 
