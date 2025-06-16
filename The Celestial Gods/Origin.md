@@ -56,4 +56,4 @@ Mercurial—small in form, yet aflame with fury. He burns with a fire only eclip
 
 Then came Venti. Grace carved into divinity, ruler of the unshaken. Her skin, smooth as polished stone—unyielding, unwavering. She moves not with haste, not with fury, but with certainty. No force sways her. No doubt mars her purpose.
 
-Then, beyond Terra and its orbit, lies Astron, endlessly floating in the void We created. He controls the spirits who are 
+Then, beyond Terra and its orbit, lies Astron, endlessly floating in the void We created. He controls the spirits who are no longer with us— for We, Creation, honor those children of other spirits, yet set them aflame. 
