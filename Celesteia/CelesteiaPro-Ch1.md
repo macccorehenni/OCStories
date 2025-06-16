@@ -275,4 +275,22 @@ After the one class she had to do after the incident (yay, me!), she went out in
 
 "Shh, join me." Anna seemed suspiciously keen on talking to Celesteia— _alone_.
 
-"I have somewhere only you, Lis, and _maybe_ Candell can visit. My treehouse. 
+"I have somewhere only you, Lis, and _maybe_ Candell can visit. My treehouse."
+
+The look on Celesteia's face must have said it all, and by Anna's serious look, she meant it was hers.
+
+"Somehow," continued Anna, "nobody but me could enter. That makes— _kinda_ sense, I guess? After all I made it during the hardest part of my life, and I realize that, _somehow_, it can sense that I need protection."
+
+Lisanna's eyes widened. 'Celesteia! Is— _Terra_ protecting Anna?"
+
+Celesteia simply nodded, but froze when she saw her friend's face.
+
+"What is that— _giant fly_ sitting on your arm???"
+
+It took Celeste a minute to realize that Anna could see Lisanna now. Perhaps it's because she told someone she truly trusted about the treehouse. Both the blue and red haired human and the purple winged faerie both nodded at each other. They _had_ to see this treehouse.
+
+"Can we, like, see it?" Lis said to Anna. 
+
+"Sure— _wait_. Are you a faerie?"
+
+Lisanna beamed proudly. "Yep, I truly am."
