@@ -10,5 +10,6 @@ This time, light blazed forth, a searing blue, violent in its nature. It tore ag
 Too much. Too loud. Creation sighed.
 Again, it would try.
 
+It then hit upon the perfect light— not too bright, not too dim. It smiled. It was all colors together, all bright, but not _too_ bright.
 
-It t
+It then realized that it was still in darkness— its light hadn't touched it. "That will not do," it groveled. So, it touched itself, its light touching 
