@@ -20,20 +20,22 @@ So We reached again. We touched again. And in the silence, the stars hummed. The
 That, too, was better.
 We know this to be true. 
 
-```
+```markdown
 For We are Creation itself—the ones who first grasped light, who first placed the stars, who first breathed song into silence. We are the voice that speaks. We are the hand that shapes. You hear Us now, as you always have. As you always will.
 ```
 
 And thus, the cosmos unfolded—each act, each touch shaping the world in ways unseen before.
+
+## The gods
 
 Zolon, Our firstborn, the fire given form. He burns, restless, his spirit ablaze as the star he governs. He holds the temper We shall never claim, his fury a beacon in the void.
 
 Then came Terra. The world beneath, the cradle of creation itself. From the depths We called forth Thalindra, ruler of the waters, flowing, eternal, carrying the wisdom of tides.
 
 And from the land We wove Iriendel, guardian of green and beast, the pulse of life itself. The grasses bow to their keeper, and creatures heed their call.
-These are but the first of Our children. Their stories echo through all time. Shall We continue?
+These are but the first of Our children. Their stories echo through all time.
 
-And so, from the quiet glow of Luna, two arose—sons of the celestial body, bound to Terra, yet distant in their own dominions.
+From the quiet glow of Luna, two arose—sons of the celestial body, bound to Terra, yet distant in their own dominions.
 
 Noctuan, first among the veiled, ruler of the underworld. He commands in silence, his decree carried in whispers, his reign met with unease by his siblings. His leadership—necessary, unchallenged, yet unwelcome.
 
@@ -41,6 +43,8 @@ Lunara, luminous yet lost, consumed by his own grandeur. They alone, besides Zol
 
 They drift as the moon itself drifts—never straying, never settling.
 
-Next is Mecurial, his stature small, but his fire raging, second to only Zolon's rage.
+Mercurial—small in form, yet aflame with fury. He burns with a fire only eclipsed by Zolon themself, restless, quick, a streak of brilliance and chaos alike.
 
-Next to be created is Venti, the god of many a marble, skin the smoothest of Our children, unshakable in her tenent. 
+Then came Venti. Grace carved into divinity, ruler of the unshaken. Her skin, smooth as polished stone—unyielding, unwavering. She moves not with haste, not with fury, but with certainty. No force sways her. No doubt mars her purpose.
+
+Then 
