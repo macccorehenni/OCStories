@@ -35,6 +35,8 @@ And so, Creation grew, no longer resting solely in Our grasp.
 
 ## The gods
 
+And so We name them—the gods, Our children, extensions of Our will, bearers of creation’s purpose.
+
 Zolon, Our firstborn, the fire given form. He burns, restless, his spirit ablaze as the star he governs. He holds the temper We shall never claim, his fury a beacon in the void.
 
 Then came Terra. The world beneath, the cradle of creation itself. From the depths We called forth Thalindra, ruler of the waters, flowing, eternal, carrying the wisdom of tides.
@@ -54,4 +56,4 @@ Mercurial—small in form, yet aflame with fury. He burns with a fire only eclip
 
 Then came Venti. Grace carved into divinity, ruler of the unshaken. Her skin, smooth as polished stone—unyielding, unwavering. She moves not with haste, not with fury, but with certainty. No force sways her. No doubt mars her purpose.
 
-Then 
+Then, beyond Terra and its orbit, lies Astron, endlessly floating in the void We created. He controls the spirits who are 
