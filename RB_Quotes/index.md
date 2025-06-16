@@ -12,6 +12,7 @@ You're on a path and you know where it heads
 There’s no need for despair
 Just walk on and you'll find you're there
 ```
+
 Carole and Tuesday, "Someday I'll Find My Way Home"
 
 ## Lyrics for each of the characters
