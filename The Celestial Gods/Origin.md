@@ -12,4 +12,5 @@ Again, it would try.
 
 It then hit upon the perfect light— not too bright, not too dim. It smiled. It was all colors together, all bright, but not _too_ bright.
 
-It then realized that it was still in darkness— its light hadn't touched it. "That will not do," it groveled. So, it touched itself, its light touching and illuminating its body— "much better", it sighed.
+Then it paused. It saw. It was still in darkness. Its light—untouched. That would not do. No.
+It reached for itself. It touched. Light spilled across its form. Illuminating. "Much better," it sighed.
