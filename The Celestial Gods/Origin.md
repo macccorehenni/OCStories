@@ -60,7 +60,9 @@ Astron drifts, unbound, suspended in the void We carved from the silence. He doe
 He does not mourn them, nor does he weep. Instead, he gathers them, holds them in his presence, and guides them as they burn. For We, Creation, honor them—those children of other spirits—yet set them aflame. Not in destruction, but in transformation. Their light does not dim; it rises. Their essence does not vanish; it becomes something greater.
 Thus, Astron remains, forever between, forever beyond.
 
-Joven came next, his eyes as luminous as that of Thalindra, yet more or less tempest-torn. His skin marred by the imperfections of many storms weathered, he plays privy to much of the drama that befell his family and Us when we learned of Umbra's decision.
+Joven followed, his gaze bright as Thalindra’s—yet restless, storm-laden. His skin bore the traces of tempests endured, each mark a story, each scar a reckoning. He stood at the heart of their turmoil, witness to the unraveling when Umbra’s decision came to light.
 
-Tethys always has a dress for every occasion, her skin as radiant as the two of Terra, yet with grace given the gods of Luna. Her rings she always carries bring a grandeur that even those four cannot match combined. 
+Tethys never arrives unprepared. She adorns herself with precision, every gown a deliberate statement. Her skin gleams like the twins of Terra, yet with the poise granted by Luna’s gods. And always, the rings—symbols of a majesty beyond even the four combined.
+
+
 
