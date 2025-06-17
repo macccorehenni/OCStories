@@ -46,16 +46,21 @@ These are but the first of Our children. Their stories echo through all time.
 
 From the quiet glow of Luna, two arose—sons of the celestial body, bound to Terra, yet distant in their own dominions.
 
-Noctuan, first among the veiled, ruler of the underworld. He commands in silence, his decree carried in whispers, his reign met with unease by his siblings. His leadership—necessary, unchallenged, yet unwelcome.
+Nocturn, first among the veiled, ruler of the underworld. He commands in silence, his decree carried in whispers, his reign met with unease by his siblings. His leadership—necessary, unchallenged, yet unwelcome.
 
 Lunara, luminous yet lost, consumed by their grandeur. They alone, besides Zolon themself, speaks in the tongue We claim— their voice woven with regality, though whether it is earned or assumed remains uncertain.
 
 They drift as the moon itself drifts—never straying, never settling.
 
-Mercurial—small in form, yet aflame with fury. He burns with a fire only eclipsed by Zolon themself, restless, quick, a streak of brilliance and chaos alike.
+Mercurial— small in form, yet aflame with fury. He burns with a fire only eclipsed by Zolon themself, restless, quick, a streak of brilliance and chaos alike.
 
 Then came Venti. Grace carved into divinity, ruler of the unshaken. Her skin, smooth as polished stone—unyielding, unwavering. She moves not with haste, not with fury, but with certainty. No force sways her. No doubt mars her purpose.
 
 Astron drifts, unbound, suspended in the void We carved from the silence. He does not command land nor sea, nor star nor storm. Instead, he tends to what remains—the spirits who have passed beyond the mortal veil.
 He does not mourn them, nor does he weep. Instead, he gathers them, holds them in his presence, and guides them as they burn. For We, Creation, honor them—those children of other spirits—yet set them aflame. Not in destruction, but in transformation. Their light does not dim; it rises. Their essence does not vanish; it becomes something greater.
 Thus, Astron remains, forever between, forever beyond.
+
+Joven came next, his eyes as luminous as that of Thalindra, yet more or less tempest-torn. His skin marred by the imperfections of many storms weathered, he plays privy to much of the drama that befell his family and Us when we learned of Umbra's decision.
+
+Tethys always has a dress for every occasion, her skin as radiant as the two of Terra, yet with grace given the gods of Luna. Her rings she always carries bring a grandeur that even those four cannot match combined. 
+
