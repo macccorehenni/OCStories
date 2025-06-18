@@ -294,3 +294,5 @@ It took Celeste a minute to realize that Anna could see Lisanna now. Perhaps it'
 "Sure— _wait_. Are you a faerie?"
 
 Lisanna beamed proudly. "Yep, I truly am."
+
+Anna simply shrugs, and says to Celesteia, "So— you up for it now 
