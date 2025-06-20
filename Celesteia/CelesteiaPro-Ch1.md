@@ -289,10 +289,25 @@ Celesteia simply nodded, but froze when she saw her friend's face.
 
 It took Celeste a minute to realize that Anna could see Lisanna now. Perhaps it's because she told someone she truly trusted about the treehouse. Both the blue and red haired human and the purple winged faerie both nodded at each other. They _had_ to see this treehouse.
 
-"Can we, like, see it?" Lis said to Anna. 
+"Can we, like, see it?" Lis said to Anna.
 
 "Sure— _wait_. Are you a faerie?"
 
 Lisanna beamed proudly. "Yep, I truly am."
 
-Anna simply shrugs, and says to Celesteia, "So— you up for it now 
+Anna simply shrugs, and says to Celesteia, "So— you up for it now, or?"
+
+She didn't want to lose Anna, either as a friend nor a fellow human, and, besides, knew the treehouse _might_ help with her charge. Also, she intuited to herself, it might protect her. So, she nodded.
+
+---
+
+A while later, they both took the city bus to Riverfront, the sister city across the Eisnore-Ley River from Eisnore. Anna requested a stop on the far river part of Riverfront. A few minutes of walking later, the trio stopped, looking in front of a dilapidated house, its trim falling off.
+
+"This is my place. Normally, I'd say, 'I gotta go to work now', but I don't. I got— some mental health time off." Anna sighs, indicating that there's much more to the story then she's letting on. But Celesteia doesn't pry, of course. It's not her place to judge, she reasons. 
+
+"You'll love the decorations, Celeste." she says as she pulls on a rope hanging from a tree. Lisanna looks on, confused, as a building— flourishing, fancy, hidden almost as if part of the land below it. Lisanna looks over at Celesteia, but her confusion is all but increased by the fact that Celeste looked _awed_ at the treehouse.
+
+"How long—"
+
+"For a while." Anna smiled from the top of the treehouse.
+

@@ -63,6 +63,3 @@ Thus, Astron remains, forever between, forever beyond.
 Joven followed, his gaze bright as Thalindra’s—yet restless, storm-laden. His skin bore the traces of tempests endured, each mark a story, each scar a reckoning. He stood at the heart of their turmoil, witness to the unraveling when Umbra’s decision came to light.
 
 Tethys never arrives unprepared. She adorns herself with precision, every gown a deliberate statement. Her skin gleams like the twins of Terra, yet with the poise granted by Luna’s gods. And always, the rings—symbols of a majesty beyond even the four combined.
-
-
-
