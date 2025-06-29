@@ -18,7 +18,7 @@ The stars—first scattered, then placed. No chaos. No uncertainty. Each one in 
 They burned, bright and unwavering. Light upon light. And yet—space remained vast. A chasm of silence.
 So We reached again. We touched again. And in the silence, the stars hummed. Their fire breathed. Their song began.
 That, too, was better.
-We know this to be true. 
+We know this to be true.
 
 ```markdown
 For We are Creation itself—the ones who first grasped light, who first placed the stars, who first breathed song into silence. We are the voice that speaks. We are the hand that shapes. You hear Us now, as you always have. _As you always will._

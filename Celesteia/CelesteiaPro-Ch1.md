@@ -1,3 +1,4 @@
+<!-- limit: 6000 -->
 # Celesteia and the Gods of the Far Side of the Moon
 
 ## Prologue
@@ -287,7 +288,7 @@ Celesteia simply nodded, but froze when she saw her friend's face.
 
 "What is that— _giant fly_ sitting on your arm???"
 
-It took Celeste a minute to realize that Anna could see Lisanna now. Perhaps it's because she told someone she truly trusted about the treehouse. Both the blue and red haired human and the purple winged faerie both nodded at each other. They _had_ to see this treehouse.
+It took Celesteia  a minute to realize that Anna could see Lisanna now. Perhaps it's because she told someone she truly trusted about the treehouse. Both the blue and red haired human and the purple winged faerie both nodded at each other. They _had_ to see this treehouse.
 
 "Can we, like, see it?" Lis said to Anna.
 
@@ -303,7 +304,7 @@ She didn't want to lose Anna, either as a friend nor a fellow human, and, beside
 
 A while later, they both took the city bus to Riverfront, the sister city across the Eisnore-Ley River from Eisnore. Anna requested a stop on the far river part of Riverfront. A few minutes of walking later, the trio stopped, looking in front of a dilapidated house, its trim falling off.
 
-"This is my place. Normally, I'd say, 'I gotta go to work now', but I don't. I got— some mental health time off." Anna sighs, indicating that there's much more to the story then she's letting on. But Celesteia doesn't pry, of course. It's not her place to judge, she reasons. 
+"This is my place. Normally, I'd say, 'I gotta go to work now', but I don't. I got— some mental health time off." Anna sighs, indicating that there's much more to the story then she's letting on. But Celesteia doesn't pry, of course. It's not her place to judge, she reasons.
 
 "You'll love the decorations, Celeste." she says as she pulls on a rope hanging from a tree. Lisanna looks on, confused, as a building— flourishing, fancy, hidden almost as if part of the land below it. Lisanna looks over at Celesteia, but her confusion is all but increased by the fact that Celeste looked _awed_ at the treehouse.
 
@@ -311,3 +312,56 @@ A while later, they both took the city bus to Riverfront, the sister city across
 
 "For a while." Anna smiled from the top of the treehouse.
 
+"How do you think the protection happened?" Celesteia asked. "The fact that you can… that you are the only one who can enter. Well, and Lisanna and I, too, I guess."
+
+"And potentially Officer Candell." Anna smiled. "What do you think?"
+
+"It looks— good. Hey, somewhat related question— how shiny is your hair?"
+
+Anna looked at Celesteia with a sense of confusion. "Why, exactly, is this relevant?"
+
+"Um, so, have you seen, like, any, like, gods or goddesses recently?" Lisanna asked Anna, hesitating.
+
+"No, but get this— after I returned to class, my stomach turned queasy. Then this weird person— glowing, as if she was—" Anna stopped, realizing that her friend had just confirmed the answer to their question as being true.
+
+"Get this— well, this is kinda harsh though—" Celesteia wanted to say that she had only saved Anna because she had to to get _permanent_ immortality. But she judged it to be too rude to her newly found friend, because while she still wasn't sure herself, the few times that she had seen Anna since saving her, she thought that Anna was more than a friend.
+
+"Oh, never mind, but no really. We know a god too, his name is Leader."
+
+Anna looked at Celesteia funny. "What kind of god has a name like _Leader_?"
+
+"Now, don't tell him I said this, but his real name isn't Leader."
+
+"Huh, really? What is it then." Both Anna and Celesteia looked at Lisanna, who had been silent for much of the time they were in the treehouse.
+
+"His name is Umbra. He really doesn't like it; he says it reminds him of his siblings."
+
+"What happened to his siblings, then?"
+
+"Oh, that's right, Anna _just_ found out about her own patron goddess, so, we should probably tell her about Umbra's backstory, the Rainbow Bridge, and _why_ you felt compelled to help Miss Anna here." The faerie settled back into the crook of Celesteia's shoulder, where she had been for much of the trip from the high school.
+
+Anna nodded thoughtfully as Celesteia finished her story. "So it's sorta like, you know, a job?"
+
+"Yeah, essentially, although now if you wanted to kill me you'd have a very, well, _hard_ time doing so."
+
+"Huh, now that I think about it, I _have_ felt a bit stronger today."
+
+"Perhaps that's Irindel's effects on you?"
+
+"Irindel? Who's that?" Anna, once again confused, sat back in her beanbag chair. She nodded against the weight of sleep, enthralled by this new world she had entered— unintentionally, sure, but still very new and shiny. 
+
+"Irindel is the Goddess of the Earth, and your patron, I suspect." 
+
+"Huh, when you say 'patron', you mean _I_ have a goal, just like Celeste? _I_ have a job from a goddess too?"
+
+Lisanna shook her head, then tilted it thoughtfully. "Perhaps not— until Irindel chooses to show herself to you, you'll have to take my conjecture as fact."
+
+Celesteia looked at Anna. "It does look awfully like you and I are in the same boat, partner, whatever Terra's— Irindel's— goals are for you. For now, Lisanna, should we introduce Anna to Umbra?
+
+---
+
+Umbra looked up as the three girls arrived, and he put aside a framed picture of when the solar system, and his siblings too, were young. No one was alone, mostly because no one wanted to be alone. It was a scary thing, existence, something even Creation itself would later admit was hard for it to wrap its cosmic mind around. Sighing, he turned around to see his guests, including, to his surprise, a face that he had never seen before. 
+
+"And who is this?" he asked Celesteia.
+
+"Hello to you too… Leader." Lisanna looked somewhat upset, but Leader chose not to press.
