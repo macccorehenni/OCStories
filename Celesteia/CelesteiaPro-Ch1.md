@@ -180,3 +180,190 @@ On return, Celesteia found not only the officers but the dean of students of the
 "Never mind," she said, casting an interested look at Lisanna, who returned a sheepish shrug, "but you _must_ have some punishment for me?" 
 
 "No," the officer, an older man about 30 years old, according 
+v"No, just kind words. And—" Officer Candell leaned in conspiratorially— "how the _hell_ did you do that so _quickly_?"
+
+"Let's just say I have someone on my side." Celesteia said, attempting to imbue a power of authority of some sort, but a glance at Lisanna indicated that the effort to do such had failed.
+
+"Okay, if you aren't gonna spill your skills. But we need to take you to the department to hear your side."
+
+Lisanna smiled, perhaps a bit too widely for Celesteia's tastes. She hadn't known Lisanna for long, but the faerie wasn't _too_ hard to read, after all. She was hiding some details about the officer that might be helpful to know.
+
+"Lisanna, come clean to me. You know something about the officer you're not telling me." Celesteia wasn't angry, but she was quite concerned.
+
+"Shh, I'll let the officer explain in a bit." Celesteia didn't quite like the answer, but she complied.
+
+After a few minutes, Candell led Lisanna and Celesteia to his patrol car. He let them in, told Celesteia to close the door, and then turned to them, and addressed, much to Celesteia's surprise, not her, but the faerie.
+
+"Lisanna! I thought you were back on the moon!"
+
+Celesteia was shocked. "Officer? I thought that… you could _not_ see Lisanna? And—" she turned to Lisanna, shocked— "how _the fuck_ do you know him?"
+
+Candell turned to Celesteia, smile fading. "Lisanna… helped me through my own struggles. You know, Leader once gave Lisanna your job you hold now— right, Lisanna?"
+
+The faerie smiled in confirmation, and Officer Candell continued. "Yeah, I wasn't always as happy-go-lucky as I seem now. My wife left me, what now, a decade ago, Lis?"
+
+She nodded once again, and the officer looked down, eyes teared up, but not crying, not yet. "Much like you, or Anna, or… in certain ways, you, Lisanna, I struggled with that loss. While she's still alive and I still _technically_ could see her around, I… I wouldn't be able to interact. She could just as well be dead to me. I took that personally, I cried. But, Lis, Leader, they helped me out."
+
+Lisanna chimed in. "I had no experience, Modon— the officer in charge here— was, like, my second charge?
+"It was one of my first times on Earth. I had already loved Earth at that point, but I had to keep going back to the Moon. Leader wouldn't let me stay there. Until the other night, when Celeste and I crossed paths."
+
+Candell smiled. His radio chirped, bringing him back for now to the present. "Okay, well, shall we go?"
+
+Both girls smiled. The faerie— seated on Celesteia's shoulder— said, "Let's go, Mod— Officer Candell!"
+
+---
+
+After about fifteen minutes, the trio arrived at the police station. Before showing them in, the officer cautioned, "This is going to be very serious, Celesteia. You will need to leave Lis out of this, 'kay?"
+Celesteia, her long hair tied up in a bun now, remnants of the rescue attempt, smiled. "I'm glad I'm not the only one here who's been across the Bridge and lived to tell the tale."
+
+---
+_What follows is an transcript of Celesteia and Officer Candell's interview for the attempted suicide case._
+
+``` text
+OFFICER TRANSCRIPT — OFFICER M CANDELL
+SUBJECT: CELESTEIA ANORE 
+CASE: ATTEMPTED SUICIDE OF ANNA LENORE
+INTERVIEW START
+Candell: Okay, so let's start. 
+
+Where were you when Anna climbed up onto the roof and began her attempt to kill herself?
+
+Celesteia: I was on the city bus, maybe about a mile or so away—
+
+[Subject looks over shoulder at door] how long before 8:30 was it?
+
+Candell: 8:15.
+
+Celesteia: Yeah, so a mile. I arrived at 8:30 and heard the resource officer—
+
+Candell: Officer Paris, of the Riverfront Police Department.
+
+Celesteia: Uh-huh. Say that someone was on the roof, intending suicide. 
+
+Some— some voice in my head [Looks over shoulder again]— told me that this might happen today.
+
+Candell: What is the voice?
+
+Celesteia: I don't— know, something or other?
+
+Candell: so, the big question er', Celesteia, did you intend to help her, or what was your intent?
+
+Celesteia: No, no, I just went out of the kindness of my heart.
+
+Candell: And how'd you get up there?
+
+Celesteia looks over her shoulder.
+
+Celesteia: Best not to tell.
+
+Candell: Any piece of information can help us, ya know?
+```
+
+A few minutes later, Candell, Celesteia and Lisanna were in the officers' hall talking more about their paths. "So, hey, Modon, are we free to go? Have to go make my report with the Leader."
+
+Candell said, disappointed that he couldn't chat with his newfound— friends?, "Yeah, I guess." He then turned to Celesteia with a stern face. "You two ask for me _by name_ if you ever get in trouble with your work. Gotcha?"
+
+Celesteia nodded, and turned.
+
+"Lyria, can you take my kit and take them back to the high school?" Candell asked of a lanky officer.
+
+"Sure thing, Cap!"
+
+---
+
+After the one class she had to do after the incident (yay, me!), she went out into the hall. Suddenly she heard a voice from the bathroom. "Celeste?"
+
+"Anna?" Celesteia was surprised to see her— friend?— in the bathroom, _calling_ her name?
+
+"Shh, join me." Anna seemed suspiciously keen on talking to Celesteia— _alone_.
+
+"I have somewhere only you, Lis, and _maybe_ Candell can visit. My treehouse."
+
+The look on Celesteia's face must have said it all, and by Anna's serious look, she meant it was hers.
+
+"Somehow," continued Anna, "nobody but me could enter. That makes— _kinda_ sense, I guess? After all I made it during the hardest part of my life, and I realize that, _somehow_, it can sense that I need protection."
+
+Lisanna's eyes widened. 'Celesteia! Is— _Terra_ protecting Anna?"
+
+Celesteia simply nodded, but froze when she saw her friend's face.
+
+"What is that— _giant fly_ sitting on your arm???"
+
+It took Celesteia  a minute to realize that Anna could see Lisanna now. Perhaps it's because she told someone she truly trusted about the treehouse. Both the blue and red haired human and the purple winged faerie both nodded at each other. They _had_ to see this treehouse.
+
+"Can we, like, see it?" Lis said to Anna.
+
+"Sure— _wait_. Are you a faerie?"
+
+Lisanna beamed proudly. "Yep, I truly am."
+
+Anna simply shrugs, and says to Celesteia, "So— you up for it now, or?"
+
+She didn't want to lose Anna, either as a friend nor a fellow human, and, besides, knew the treehouse _might_ help with her charge. Also, she intuited to herself, it might protect her. So, she nodded.
+
+---
+
+A while later, they both took the city bus to Riverfront, the sister city across the Eisnore-Ley River from Eisnore. Anna requested a stop on the far river part of Riverfront. A few minutes of walking later, the trio stopped, looking in front of a dilapidated house, its trim falling off.
+
+"This is my place. Normally, I'd say, 'I gotta go to work now', but I don't. I got— some mental health time off." Anna sighs, indicating that there's much more to the story then she's letting on. But Celesteia doesn't pry, of course. It's not her place to judge, she reasons.
+
+"You'll love the decorations, Celeste." she says as she pulls on a rope hanging from a tree. Lisanna looks on, confused, as a building— flourishing, fancy, hidden almost as if part of the land below it. Lisanna looks over at Celesteia, but her confusion is all but increased by the fact that Celeste looked _awed_ at the treehouse.
+
+"How long—"
+
+"For a while." Anna smiled from the top of the treehouse.
+
+"How do you think the protection happened?" Celesteia asked. "The fact that you can… that you are the only one who can enter. Well, and Lisanna and I, too, I guess."
+
+"And potentially Officer Candell." Anna smiled. "What do you think?"
+
+"It looks— good. Hey, somewhat related question— how shiny is your hair?"
+
+Anna looked at Celesteia with a sense of confusion. "Why, exactly, is this relevant?"
+
+"Um, so, have you seen, like, any, like, gods or goddesses recently?" Lisanna asked Anna, hesitating.
+
+"No, but get this— after I returned to class, my stomach turned queasy. Then this weird person— glowing, as if she was—" Anna stopped, realizing that her friend had just confirmed the answer to their question as being true.
+
+"Get this— well, this is kinda harsh though—" Celesteia wanted to say that she had only saved Anna because she had to to get _permanent_ immortality. But she judged it to be too rude to her newly found friend, because while she still wasn't sure herself, the few times that she had seen Anna since saving her, she thought that Anna was more than a friend.
+
+"Oh, never mind, but no really. We know a god too, his name is Leader."
+
+Anna looked at Celesteia funny. "What kind of god has a name like _Leader_?"
+
+"Now, don't tell him I said this, but his real name isn't Leader."
+
+"Huh, really? What is it then." Both Anna and Celesteia looked at Lisanna, who had been silent for much of the time they were in the treehouse.
+
+"His name is Umbra. He really doesn't like it; he says it reminds him of his siblings."
+
+"What happened to his siblings, then?"
+
+"Oh, that's right, Anna _just_ found out about her own patron goddess, so, we should probably tell her about Umbra's backstory, the Rainbow Bridge, and _why_ you felt compelled to help Miss Anna here." The faerie settled back into the crook of Celesteia's shoulder, where she had been for much of the trip from the high school.
+
+Anna nodded thoughtfully as Celesteia finished her story. "So it's sorta like, you know, a job?"
+
+"Yeah, essentially, although now if you wanted to kill me you'd have a very, well, _hard_ time doing so."
+
+"Huh, now that I think about it, I _have_ felt a bit stronger today."
+
+"Perhaps that's Irindel's effects on you?"
+
+"Irindel? Who's that?" Anna, once again confused, sat back in her beanbag chair. She nodded against the weight of sleep, enthralled by this new world she had entered— unintentionally, sure, but still very new and shiny. 
+
+"Irindel is the Goddess of the Earth, and your patron, I suspect." 
+
+"Huh, when you say 'patron', you mean _I_ have a goal, just like Celeste? _I_ have a job from a goddess too?"
+
+Lisanna shook her head, then tilted it thoughtfully. "Perhaps not— until Irindel chooses to show herself to you, you'll have to take my conjecture as fact."
+
+Celesteia looked at Anna. "It does look awfully like you and I are in the same boat, partner, whatever Terra's— Irindel's— goals are for you. For now, Lisanna, should we introduce Anna to Umbra?
+
+---
+
+Umbra looked up as the three girls arrived, and he put aside a framed picture of when the solar system, and his siblings too, were young. No one was alone, mostly because no one wanted to be alone. It was a scary thing, existence, something even Creation itself would later admit was hard for it to wrap its cosmic mind around. Sighing, he turned around to see his guests, including, to his surprise, a face that he had never seen before. 
+
+"And who is this?" he asked Celesteia.
+
+"Hello to you too… Leader." Lisanna looked somewhat upset, but Leader chose not to press.
+`
