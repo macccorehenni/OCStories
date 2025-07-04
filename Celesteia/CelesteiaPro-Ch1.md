@@ -366,4 +366,25 @@ Umbra looked up as the three girls arrived, and he put aside a framed picture of
 "And who is this?" he asked Celesteia.
 
 "Hello to you too… Leader." Lisanna looked somewhat upset, but Leader chose not to press.
-`
+
+"Her name is Anna." Celesteia smiled, then hastily added, "Sir. Leader."
+
+"So, Anna— it seems like you have some connections to my siblings here. Is that true?"
+
+"What do you mean, Leader?"
+
+"I mean, Irindel— my sister."
+
+"Uh, Celesteia here seems to think so at least."
+
+"I'm pleased to finally meet you. Has Celesteia told you about her goal yet?"
+
+"No, she actually hasn't." 
+
+Leader— Umbra— then explained what he meant. 
+
+"Huh— so you brought her up to it? Cause if then, what's my point? Why am _I_ here?" 
+
+Umbra ran his hand through his hair, a sign of frustration both Celesteia and Lisanna had come to note and catalog for later use.
+
+"I'm not sure why. I haven't… I have not really been in contact with her or 
