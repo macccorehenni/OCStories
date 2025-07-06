@@ -1,4 +1,4 @@
-<!-- limit: 6000 -->
+
 # Celesteia and the Gods of the Far Side of the Moon
 
 ## Prologue
@@ -348,9 +348,9 @@ Anna nodded thoughtfully as Celesteia finished her story. "So it's sorta like, y
 
 "Perhaps that's Irindel's effects on you?"
 
-"Irindel? Who's that?" Anna, once again confused, sat back in her beanbag chair. She nodded against the weight of sleep, enthralled by this new world she had entered— unintentionally, sure, but still very new and shiny. 
+"Irindel? Who's that?" Anna, once again confused, sat back in her beanbag chair. She nodded against the weight of sleep, enthralled by this new world she had entered— unintentionally, sure, but still very new and shiny.
 
-"Irindel is the Goddess of the Earth, and your patron, I suspect." 
+"Irindel is the Goddess of the Earth, and your patron, I suspect."
 
 "Huh, when you say 'patron', you mean _I_ have a goal, just like Celeste? _I_ have a job from a goddess too?"
 
@@ -360,8 +360,44 @@ Celesteia looked at Anna. "It does look awfully like you and I are in the same b
 
 ---
 
-Umbra looked up as the three girls arrived, and he put aside a framed picture of when the solar system, and his siblings too, were young. No one was alone, mostly because no one wanted to be alone. It was a scary thing, existence, something even Creation itself would later admit was hard for it to wrap its cosmic mind around. Sighing, he turned around to see his guests, including, to his surprise, a face that he had never seen before. 
+Umbra looked up as the three girls arrived, and he put aside a framed picture of when the solar system, and his siblings too, were young. No one was alone, mostly because no one wanted to be alone. It was a scary thing, existence, something even Creation itself would later admit was hard for it to wrap its cosmic mind around. Sighing, he turned around to see his guests, including, to his surprise, a face that he had never seen before.
 
-"And who is this?" he asked Celesteia.
+"And who is this?" he asked Celesteia, pointedly avoiding the faerie's sharp, angular face.
 
-"Hello to you too… Leader." Lisanna looked somewhat upset, but Leader chose not to press.
+"Hello to you too… Leader." Lisanna looked somewhat upset, but Leader chose not to press, given that she, apart from perhaps Lisanna, was the only family that he had, and he didn't want to rock the boat by forcing Lisanna to argue her point. She looked up at Leader— Umbra— for a second, then turned her glance to Anna.
+
+"We think Terra might have chosen her… to be her patron. Which I'm not sure how to think about, given that…" Lisanna leaned into Umbra's shoulder, and he recoiled back, instead bringing his ear to Lisanna's mouth. "Given that they seem to be inseparable, you may have to see Terra again, Umbra. Don't particularly look forward to that."
+
+He sighed, then turned back to the teens in front of him.
+
+"Welcome, Anna, right?"
+
+"Yes, sir—"
+
+Anna's mouth fell open as she saw the Rainbow Bridge before them.
+
+"What the— flipping hell is _that_?"
+
+"It's the Rainbow Bridge, Anna." He then explained what Celesteia's job is, and how she had gotten _temporary_ immortality from it.
+
+"So, let me get this right, Leader. _That_ is where people go when they die, and Celesteia's job is to _not_ let people jump or otherwise kill themselves with no consideration to others' health and safety?"
+
+"Exactly."
+
+"That's both cool and honestly kinda creepy at the same time."
+
+"Yeaaah, that's true, though. It might seem kinda weird at first, but the reason why Celesteia took this 'job' of sorts is to help me, too. Honestly— I only really think I've ever told Lis this—" the faerie nodded confirmation— "each of us in this room has considered ending our life. Lis, she still harbors resentment from her true father, who abandoned her just short of the Bridge behind us, and I adopted her. Much like us three— while Lis didn't _lose_ someone, as in her father hasn't crossed the Bridge, it could very well be the case that he had. He's no one, as he should be, and her mother died giving birth to the faerie before you.
+
+As for me, my siblings are still out there, and as for Celesteia, her father is still out there, But neither the other Celestial Gods nor her father, nor Lis's father are caring, and no one is there for us. And what matters, in the end is that we are all together. Anna, welcome to the… the group of outcasts that is the Council of the Dark Side of the Moon."
+
+"Why should you beat yourselves up with that name? That seems cruel to me." She 
+
+"It's a work in progress. Also, I was half joking anyways. We are the most resilient bunch around, aren't we, now?"
+
+He looks around to find no reciprocality amongst the others.
+
+"So, I heard that you all have found a headquarters, no?" 
+
+Lisanna excitedly nodded. "We have!"
+
+"Ooh, do tell!
