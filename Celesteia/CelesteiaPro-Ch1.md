@@ -177,9 +177,10 @@ On return, Celesteia found not only the officers but the dean of students of the
 
 "No— are you okay, Celesteia?" The officer looked at Celesteia weirdly.
 
-"Never mind," she said, casting an interested look at Lisanna, who returned a sheepish shrug, "but you _must_ have some punishment for me?"
+"Never mind," she said, casting an interested look at Lisanna, who returned a sheepish shrug, "but you _must_ have some punishment for me?" 
 
-"No, just kind words. And—" Officer Candell leaned in conspiratorially— "how the _hell_ did you do that so _quickly_?"
+"No," the officer, an older man about 30 years old, according 
+v"No, just kind words. And—" Officer Candell leaned in conspiratorially— "how the _hell_ did you do that so _quickly_?"
 
 "Let's just say I have someone on my side." Celesteia said, attempting to imbue a power of authority of some sort, but a glance at Lisanna indicated that the effort to do such had failed.
 
@@ -401,3 +402,25 @@ He looks around to find no reciprocality amongst the others.
 Lisanna excitedly nodded. "We have!"
 
 "Ooh, do tell!
+
+"Her name is Anna." Celesteia smiled, then hastily added, "Sir. Leader."
+
+"So, Anna— it seems like you have some connections to my siblings here. Is that true?"
+
+"What do you mean, Leader?"
+
+"I mean, Irindel— my sister."
+
+"Uh, Celesteia here seems to think so at least."
+
+"I'm pleased to finally meet you. Has Celesteia told you about her goal yet?"
+
+"No, she actually hasn't." 
+
+Leader— Umbra— then explained what he meant. 
+
+"Huh— so you brought her up to it? Cause if then, what's my point? Why am _I_ here?" 
+
+Umbra ran his hand through his hair, a sign of frustration both Celesteia and Lisanna had come to note and catalog for later use.
+
+"I'm not sure why. I haven't… I have not really been in contact with her or 

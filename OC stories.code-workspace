@@ -8,7 +8,7 @@
 		"gitdoc.enabled": true,
 		"editor.minimap.autohide": true,
 		"editor.minimap.enabled": true,
-		"workbench.colorTheme": "papercolor-vscode-light",
+		"workbench.colorTheme": "MacOS Modern Dark - Xcode Default",
 		"autoHide.autoHideAuxiliaryBar": false,
 		"autoHide.autoHidePanel": false
 	}
