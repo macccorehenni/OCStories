@@ -391,7 +391,7 @@ Anna's mouth fell open as she saw the Rainbow Bridge before them.
 
 As for me, my siblings are still out there, and as for Celesteia, her father is still out there, But neither the other Celestial Gods nor her father, nor Lis's father are caring, and no one is there for us. And what matters, in the end is that we are all together. Anna, welcome to the… the group of outcasts that is the Council of the Dark Side of the Moon."
 
-"Why should you beat yourselves up with that name? That seems cruel to me." She 
+"Why should you beat yourselves up with that name? That seems cruel to me." She frowned.
 
 "It's a work in progress. Also, I was half joking anyways. We are the most resilient bunch around, aren't we, now?"
 
@@ -401,7 +401,7 @@ He looks around to find no reciprocality amongst the others.
 
 Lisanna excitedly nodded. "We have!"
 
-"Ooh, do tell!
+"Ooh, do tell!"
 
 "Her name is Anna." Celesteia smiled, then hastily added, "Sir. Leader."
 
@@ -423,4 +423,13 @@ Leader— Umbra— then explained what he meant.
 
 Umbra ran his hand through his hair, a sign of frustration both Celesteia and Lisanna had come to note and catalog for later use.
 
-"I'm not sure why. I haven't… I have not really been in contact with her or 
+"I'm not sure why. I haven't… I have not really been in contact with her or any of my other siblings over the past— what? Fifty years?"
+
+"Wow, if you don't mind, how old are you?"
+
+"Over, what, three thousand years old?"
+
+"Well, Leader, then that's a drop in the bucket to you!"
+True, Leader thought. Hopefully it will not be much longer till I see Thalindra then. Hopefully the _rest_ of them then.
+
+"Regardless of _my_ state, I still want to emphasize the connection that Anna has with me, and by connection
