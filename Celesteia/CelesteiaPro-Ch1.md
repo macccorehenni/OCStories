@@ -177,7 +177,7 @@ On return, Celesteia found not only the officers but the dean of students of the
 
 "No— are you okay, Celesteia?" The officer looked at Celesteia weirdly.
 
-"Never mind," she said, casting an interested look at Lisanna, who returned a sheepish shrug, "but you _must_ have some punishment for me?" 
+"Never mind," she said, casting an interested look at Lisanna, who returned a sheepish shrug, "but you _must_ have some punishment for me?"
 
 "No," the officer, an older man about 30 years old, said.
 "No, just kind words. And—" Officer Candell leaned in conspiratorially— "how the _hell_ did you do that so _quickly_?"
@@ -397,7 +397,7 @@ As for me, my siblings are still out there, and as for Celesteia, her father is 
 
 He looks around to find no reciprocality amongst the others.
 
-"So, I heard that you all have found a headquarters, no?" 
+"So, I heard that you all have found a headquarters, no?"
 
 Lisanna excitedly nodded. "We have!"
 
@@ -415,11 +415,11 @@ Lisanna excitedly nodded. "We have!"
 
 "I'm pleased to finally meet you. Has Celesteia told you about her goal yet?"
 
-"No, she actually hasn't." 
+"No, she actually hasn't."
 
-Leader— Umbra— then explained what he meant. 
+Leader— Umbra— then explained what he meant.
 
-"Huh— so you brought her up to it? Cause if then, what's my point? Why am _I_ here?" 
+"Huh— so you brought her up to it? Cause if then, what's my point? Why am _I_ here?"
 
 Umbra ran his hand through his hair, a sign of frustration both Celesteia and Lisanna had come to note and catalog for later use.
 
@@ -448,4 +448,6 @@ Anna dared ask why, and he said, "Modon has another attempted suicide for you al
 
 Celesteia sighed. "Okay. We'll see ya, Leader."
 
-And then Celesteia and company left the Rainbow Bridge control room, dreading what was to be found there. But Celesteia? She found it weird that two attempted suicides 
+And then Celesteia and company left the Rainbow Bridge control room, dreading what was to be found there. But Celesteia? She found it weird that two attempted suicides happened at the _same time_?
+
+When they arrived back at the high school, Celesteia met with the burly-ish officer in front
