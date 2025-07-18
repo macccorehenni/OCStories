@@ -179,8 +179,8 @@ On return, Celesteia found not only the officers but the dean of students of the
 
 "Never mind," she said, casting an interested look at Lisanna, who returned a sheepish shrug, "but you _must_ have some punishment for me?" 
 
-"No," the officer, an older man about 30 years old, according 
-v"No, just kind words. And—" Officer Candell leaned in conspiratorially— "how the _hell_ did you do that so _quickly_?"
+"No," the officer, an older man about 30 years old, said.
+"No, just kind words. And—" Officer Candell leaned in conspiratorially— "how the _hell_ did you do that so _quickly_?"
 
 "Let's just say I have someone on my side." Celesteia said, attempting to imbue a power of authority of some sort, but a glance at Lisanna indicated that the effort to do such had failed.
 
@@ -432,4 +432,20 @@ Umbra ran his hand through his hair, a sign of frustration both Celesteia and Li
 "Well, Leader, then that's a drop in the bucket to you!"
 True, Leader thought. Hopefully it will not be much longer till I see Thalindra then. Hopefully the _rest_ of them then.
 
-"Regardless of _my_ state, I still want to emphasize the connection that Anna has with me, and by connection
+"Regardless of _my_ state, I still want to emphasize the connection that Anna has with me, and by connection you, Celeste. Promise that you'll protect here, then?"
+
+Celesteia then walked up to her boss, nodded and said, with a wink towards Anna, "Yes sir, I will."
+
+Just then, a loud telephone— its ringtone reminiscent of the tune of that star princess whose story relates to the teenagers and gods in this room now— rung out.
+
+"Excuse me then, for a moment— where is that damm thing— ah, here it is— Umbra here. Uh- sister, is— oh? is that true? Hmmmmm, no, no she—"
+
+He then slams the phone to the ground, shattering the glass just the tiniest bit.
+
+"You all, meet me at the highschool."
+
+Anna dared ask why, and he said, "Modon has another attempted suicide for you all. Good luck."
+
+Celesteia sighed. "Okay. We'll see ya, Leader."
+
+And then Celesteia and company left the Rainbow Bridge control room, dreading what was to be found there. But Celesteia? She found it weird that two attempted suicides 
