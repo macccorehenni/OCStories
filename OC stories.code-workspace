@@ -6,9 +6,9 @@
 	],
 	"settings": {
 		"gitdoc.enabled": true,
-		"editor.minimap.autohide": "mouseover",
+		"editor.minimap.autohide": "none",
 		"editor.minimap.enabled": true,
-		"workbench.colorTheme": "MacOS Modern Dark - Xcode Default",
+		"workbench.colorTheme": "papercolor-vscode-light",
 		"autoHide.autoHideAuxiliaryBar": false,
 		"autoHide.autoHidePanel": false
 	}
